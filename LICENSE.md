@@ -1,4 +1,4 @@
-
+dig deeper for brainrots instant Scripts is the best dig deeper for brainrots Script, featuring invisibility and auto-collect. Safe and powerful for
 
 
 
